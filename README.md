@@ -1,2 +1,2 @@
 # Omok Game
-[자세한 내용(영상)](http://naver.com)
+[자세한 내용(영상)](https://youtu.be/9jLNwZf0UHE)
